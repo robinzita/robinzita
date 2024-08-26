@@ -1,16 +1,18 @@
 ## Hi there 👋
+Bem Vindo ao meu Perfil
 
-<!--
-**robinzita/robinzita** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ Meu nome é Keila Dusan 
 
-Here are some ideas to get you started:
+ Coisas que gosto:
+ 
+ 🔅Animais 
+ 
+ 🔅Biologia
+ 
+ 🔅Sorvete
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ Uso este espaço para fins educativos📫
+
+ Você pode entrar em contato comigo
+
+ 00001118987901SP@al.educacao.sp.gov.br
